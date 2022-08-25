@@ -17,9 +17,9 @@
 
 - 💬 Ask me about **React, Python, or JavaScript!**
 
-- 📫 How to reach me **Mikal_Williams@ymail.com**
+- 📫 How to reach me **mikeyisme30@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/mikal-williams-638923181/](https://www.linkedin.com/in/mikal-williams-638923181/)
+- 📄 Know about my experiences [https://www.linkedin.com/](https://www.linkedin.com/)
 
 - ⚡ Fun fact **I think I am charismatic**
 
